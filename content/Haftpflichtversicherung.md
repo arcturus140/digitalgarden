@@ -1,0 +1,10 @@
+	- Versicherungssteuer: 19%
+		- 38,81 €
+		- 6,20 / 0,19 = 32.63
+		- 6,18 ?
+			- Komission Check24?
+	- Lebenspartner mitversichern
+	- Angaben
+		- kein öffentlicher Dienst
+		- Abgesicherte Personen: Ich
+		- PLZ

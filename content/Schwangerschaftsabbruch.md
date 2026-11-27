@@ -1,0 +1,17 @@
+- ich bin dankbar, dass ich persönlich nicht diese Entscheidung treffen musste
+- ich bin dankbar, dass ich in eine Welt hineingeboren bin
+	- in der es Pro-Life Aktivismus gibt
+	- in der Abtreibug gesellschaftlich verboten ist
+	- in der Abtreibung gesellschaftlich nicht verfolgt wird
+- das Thema wird die Menschheit für immer beschäftigen
+	- es wird immer eine Gegenbewegung geben zum aktuellen Stand
+		- Regeln werden mal strikter, mal liberaler
+- Aktivismus hat für mich vorteile
+	- ich bin an vorderster Front
+	- ich bekomme ein Gefühl für das Kräfteverhaltnis beider Fronten
+	- ich möchte bisher keine Änderung
+	- ich möchte reagieren, wenn es nötig ist
+- ich möchte für die Gesellschaft eine möglichst stabile Haltung
+- ich möchte nur nach Pro-Choice leben
+	- ich bin bereit, Pro-Choice zu unterstützen
+- ich bin strikt gegen Propaganda, weil sie das Thema verzerren

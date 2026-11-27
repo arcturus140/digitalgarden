@@ -1,0 +1,1 @@
+- für Beamtenstatus und Rentner, die bis Eintritt im ÖD gearbeitet haben

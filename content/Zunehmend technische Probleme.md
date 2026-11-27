@@ -1,0 +1,8 @@
+- Einrichtung gelingt nicht
+- Betriebsausfälle
+- Abhilfe nur temporär
+- Hot-Spot wird immer instabiler
+	- häufige Unterbrechungen
+	- Abhilfe kurzfristig
+	- Wartungsarbeiten
+	- Verifizierung per SMS

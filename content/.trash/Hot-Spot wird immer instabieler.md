@@ -1,0 +1,4 @@
+- häufige Unterbrechungen
+- Abhilfe kurzfristig
+- Wartungsarbeiten
+- Verifizierung per SMS
